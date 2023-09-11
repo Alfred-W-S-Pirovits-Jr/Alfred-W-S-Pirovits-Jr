@@ -23,7 +23,7 @@
 🚀 &nbsp;On track to dive into the worl.\
 ✍️ &nbsp;In my free time.\
 ✉️ &nbsp;You can email me at alfredpirovits@gmail.com!
-📄 &nbsp;Please have a look at my [Résumé](https://docs.google.com/document/d/1qoKkZyWjtH_ecs0qRV6Qj9gkb0HAVundef_ykP2DaG0/edit?usp=sharing) for more details about me. I'm open to feedback and suggestions!
+📄 &nbsp;Please have a look at my [Résumé](https://docs.google.com/document/d/1sJwsuskBqSmTcShymRBTisZXhVIvX1pT9cdxY8n_XBA/edit) for more details about me. I'm open to feedback and suggestions!
 
  <hr/>
 
